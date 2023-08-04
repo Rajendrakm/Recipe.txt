@@ -7,4 +7,4 @@ Recipe list
 2. Chapathi
 3. Rice Bath
 
-Thanks for the r visiting.
+Thanks for visiting.
