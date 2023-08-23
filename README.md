@@ -8,3 +8,5 @@ Recipe list
 3. Rice Bath
 
 Thanks for visiting.
+
+Finak copy
